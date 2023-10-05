@@ -1,3 +1,1 @@
-# https://facebook.com/groups/563480565639036/
-# https://t.me/duniamayateam
-# https://t.me/STDCYBERHEKER
+<p align="center"><img src="https://kosred.com/a/fxxch.png" width="400px" height="150px" alt="ddos"></p>
